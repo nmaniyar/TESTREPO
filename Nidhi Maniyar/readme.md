@@ -1,1 +1,0 @@
-Nidhi Maniyar project space contents from snaplogic
